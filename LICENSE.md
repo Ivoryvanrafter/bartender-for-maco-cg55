@@ -1,4 +1,4 @@
-
+exclusive Bartender for macOS Extension | disk-analysis + custom-actions offers the most advanced Bartender for macOS extension, with disk-analysis and custom-actions. Ideal for
 
 
 
